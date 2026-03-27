@@ -77,3 +77,4 @@ Results-driven Software Test Engineer with 5 years of experience in Manual, ETL,
 📍 Nagpur, India  
 📧 ashwindoye555@gmail.com  
 🔗 LinkedIn: www.linkedin.com/in/ashwin-doye  
+🔗 Medium: https://medium.com/@ashwindoye555
